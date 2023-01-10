@@ -1,2 +1,4 @@
 # AreYOUlookingforaJob-
 Stoke-On-Trent £57,500 (UP TO 30% BONUS) Hybrid (2days a week)
+
+What is it that you are after, or what is it that you are missing in your current role?  I am looking for someone who wants to take that step into a Software Developer role, working for a renowned company, respected worldwide.  This would be Hybrid,  2 days per week role in Stoke-on-Trent, offering flexible working and a salary of up to £57,500 (£50,000 + 15% guaranteed bonus (up to 30% with good performance), 7.5% pension contribution and much more.  If you aren't currently looking let's connect on LinkedIn and I'd be happy to help in the future - https://www.linkedin.com/in/madeleine-toal-a435a719a/. Or if there is anyone you know of that is after a new role please let me know.  It would be great to speak with you further and get to know one another. Pop over your CV and a time best to call you if this is something that interests you!  Best wishes,
